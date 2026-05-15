@@ -1,4 +1,4 @@
-# 
+# exclusive Polymarket Addon | custom-strategies + market-making offers the most advanced Polymarket addon, with custom-strategies and market-making. Ideal for professional traders
 
 
 
